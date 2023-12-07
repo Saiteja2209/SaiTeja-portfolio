@@ -1,2 +1,0 @@
-# SaiTeja-portfolio
- My Portfolio
